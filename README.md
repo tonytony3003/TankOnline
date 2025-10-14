@@ -1,2 +1,2 @@
 - Nhóm em gửi cô link file doc Draf đồ án version 1 ạ: [Google docx Draf version 1](https://docs.google.com/document/d/1SrLk5Nv8CXhKI3-nQ7NfVZwXhtBWxnB6h5IBozpWC3g/edit?tab=t.0)
-  
+- Phân chia công việc: [Phân chia công việc cụ thể](https://docs.google.com/document/d/14B0_8q57DKVb6MOgAXdtns8mV_usBS3t_O3V18YLd6o/edit?fbclid=IwY2xjawNbO0FleHRuA2FlbQIxMABicmlkETEwM1J0ZGNrMlN0N1hxWFY1AR5fUjifKVQpPe-OVhjhiT6CmKcFUczTLzm9bH6UvhMQFDMG7WdrF6EaKoLgTA_aem_aZGU_KVw9AuNYFHC7dZ0qA&tab=t.0)
